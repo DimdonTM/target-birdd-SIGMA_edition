@@ -1,3 +1,3 @@
 download this game and you became a SIGMA!
 
-https://github.com/mandrykarina
+[GAME)https://github.com/mandrykarina/Birdd
